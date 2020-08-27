@@ -1,1 +1,1 @@
-Website for families which will help to organize personal duties
+Website to help families to organize personal duties
